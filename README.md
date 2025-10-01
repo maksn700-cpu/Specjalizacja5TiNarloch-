@@ -1,1 +1,0 @@
-# Specjalizacja5TiNarloch-
